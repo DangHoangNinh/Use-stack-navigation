@@ -1,6 +1,6 @@
-Nguyễn Đình Hoàn  -  22810310375  - D17CNPM6
+Đặng Hoàng Ninh  -  22810310370  - D17CNPM6
 
 
 
-![z6376412757529_3358c52cbf456869d0d36555d811da9f](https://github.com/user-attachments/assets/9b71f589-0c6a-4e2e-8776-b9088c7e6eeb)
-![z6376412753694_7353a099fa7b5e4452e52f17a56ff4c9](https://github.com/user-attachments/assets/ee35f8c6-d1b0-423f-b868-0740a8062f79)
+![z6376419905806_56a8b86c9cb891496d0f61db4135809a](https://github.com/user-attachments/assets/57747d66-cd26-4e70-899e-accdafbe24a6)
+![z6376419906192_649ac7e690e34a0d02e3d5d42babd466](https://github.com/user-attachments/assets/9c01df5f-c040-4701-86c6-97f5542fbeb2)
